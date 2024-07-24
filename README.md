@@ -1,0 +1,1 @@
+Auf dem folgenden Link werden Sie eine Liste mit den wichtigsten Interjektionen auf deutsch finden. Diese Liste wurde mit der Hilfe der DWDS erstellt. Bei jede Interjektion gibt es ein respektives Link zum Wort auf DWDS.
